@@ -5,7 +5,7 @@
 \\⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃⨃-->
 ![mcw℥⅄⅁ht of t℥h word](https://user-images.githubusercontent.com/44746806/112784943-86079680-905b-11eb-9721-5f2e0a014e4b.jpeg)
 
-и мозгов совсем не станет, быдут только лишь компы. // Turing sauna & pubsub tarpit.
+Ultimacht .Databas
 
 
 
